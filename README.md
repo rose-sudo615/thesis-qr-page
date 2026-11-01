@@ -1,1 +1,0 @@
-# thesis-qr-page
